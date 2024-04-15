@@ -8,3 +8,6 @@ In general, all these account usually are alerted to me through "friend request"
 - https://www.facebook.com/profile.php?id=100088182956331
 - https://www.facebook.com/profile.php?id=100094347352979
 - https://www.facebook.com/profile.php?id=61555325830969
+- https://www.facebook.com/kim.lee.231569
+- https://www.facebook.com/profile.php?id=100088182956331
+
